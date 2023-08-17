@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @R-ack
-- 👀 I’m interested in taking a path in cybersecurity(cyberspecialist)
+- 👀 I’m interested in taking a path in cybersecurity
 - 🌱 I’m currently learning Networking and security
 - 💞️ I’m looking to collaborate on any space that will add value to my career path.
 - 📫 How to reach me https://wa.link/a0okfu
